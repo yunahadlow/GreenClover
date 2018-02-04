@@ -27,5 +27,12 @@ Rainbow - Do something amazing!
 -----------------------------------------------------------------------------------
 
 All of these you will need to email to (yuna@suteki.co.uk).
-If you would like to buy a sticker book for £1.50 then please email us. In the sticker book, you will be able to place all the stickers that you earn inside!
+If you would like to buy a sticker book for £1.50 then please email us. In the sticker book, you will be able to place all the stickers that you earn inside! If you would like to enter a challenge, please meet the owners at lunch.
+
+
+This weeks competition is: (starts Tuesday 6th February)
+Design Yuna's (an owner) birthday cake. If you come first, your cake just might come alive.
+
+
+
 
