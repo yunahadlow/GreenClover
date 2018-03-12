@@ -32,7 +32,7 @@ If you would like to buy a sticker book for £1.50 then please email us. In the 
 
 Entries:
 
-![yunahadlow](/IMG_2955.jpg)<BR/>
+![GreenClover](/IMG_2955.jpg)<BR/>
 
 This is a haikou bu Bluebell that she entered for a green clover green badge.
 
