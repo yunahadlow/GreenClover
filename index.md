@@ -34,7 +34,7 @@ Entries:
 
 ![GreenClover](/IMG_2955.jpg)<BR/>
 
-This is a haikou bu Bluebell that she entered for a green clover green badge.
+This is a haikou by Bluebell that she entered for a green clover green badge.
 
 
 
